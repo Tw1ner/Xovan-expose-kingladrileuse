@@ -1,4 +1,4 @@
-# Xovan-expose-kingladrileuse
+# Xovan-expose-kingladrileuse He Now changed he name by @jinxorogfn Jixnor I will update when he change he name.
 Expose him for skidding @drychetah84 and myself : (
 For make everything clair, @i9dev (Drycheetah) was selling Fortmp and I tell Xovan (In VC) that Drycheetah was selling FortMP
 and since this guy is dumb asf, he said scam him but I se=aid that wasn't a good idea but he didn't listen so yh.
