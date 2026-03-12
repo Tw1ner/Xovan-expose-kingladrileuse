@@ -7,3 +7,5 @@ After that drycheetah got scam by him He Nuked the server.<img width="510" heigh
 So Drycheetah gave him the server and its all.
 I will say that I sorry and don't trust those kind of friend that Always can ruined your life.
 I dont have any proof to show you guys since we where in Vc you can Ask @i9dev if you want more information.
+Dont listen to him when he said (A guy named Flame sold me because that literally him)
+<img width="1472" height="496" alt="image" src="https://github.com/user-attachments/assets/f463d1e1-99db-4110-8dda-80b1efd52e92" />
